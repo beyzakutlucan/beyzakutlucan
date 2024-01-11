@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @beyzakutlucan
+👋 Hi, I’m @beyzakutlucan
